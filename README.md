@@ -10,3 +10,6 @@
 7. https://discord.gg/n38k8cB6py
 8. https://discord.gg/NgyC9mU5xp
 9. https://discord.gg/wQFcNUj2JN
+
+## ChannelTemplate
+https://discord.new/SexDB36zszhs
